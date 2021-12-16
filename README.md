@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Marcin Kraszewski
+- 👀 I’m eager to assist you guys looking for new development opportunities 
+- 🌱 I’m currently work as IT Recruiter, feel free to write me �
+- 🤑 Most of work possibility are in Poland 
+- 📫 You can reach me on my linkedin account: https://www.linkedin.com/in/marcin-kraszewski-ba4b041a9
